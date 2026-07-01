@@ -1,2 +1,2 @@
-## Welcome to Vita's Modding Hub
-Idk what to write soooo ummmm...
+## Welcome to Acid Software
+We are now making mods and fixing old mods
